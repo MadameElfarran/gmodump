@@ -1,2 +1,2 @@
 # gmodump
-![ANNUS](https://github.com/MadameElfarran/gmodump/assets/80040305/5a4fbb1e-7065-43cb-b43b-5b81fe25611b)
+![image](https://github.com/MadameElfarran/gmodump/assets/80040305/dd38c3e5-d17d-47f5-bd4b-91d5ddb05b3d)
