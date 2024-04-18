@@ -1,2 +1,2 @@
 # gmodump
-![image](https://github.com/MadameElfarran/gmodump/assets/80040305/dd38c3e5-d17d-47f5-bd4b-91d5ddb05b3d)
+![w a t](https://github.com/MadameElfarran/gmodump/assets/80040305/b8619631-fb95-407a-9e20-a2d84c6c512d)
